@@ -1,2 +1,2 @@
 # davidcrackk
-Holaa chicas/os
+Daniel, deja de jugar a juegos en el PC
